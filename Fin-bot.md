@@ -8,3 +8,6 @@
 CARLOS-FINBOT/CARLOS-FINBOT is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+https://replit.com/@Silana3/Fin-bot
+FINDBOT
+SQANI WHT LMILF
